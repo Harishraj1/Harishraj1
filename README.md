@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **harishrajd24@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/136HtwT6UoSqYamFT-GC7yD2M9-unAjFS/view?usp=drivesdk](https://drive.google.com/file/d/136HtwT6UoSqYamFT-GC7yD2M9-unAjFS/view?usp=drivesdk)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1C-s6Iw7H_maAD1A-Pluj10qaIeqdi2md/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
